@@ -1,1 +1,3 @@
-Credits: https://github.com/coltonon/D2DOverlay, GayPig, Vaseliinikives, guys on uc reversal thread.
+Join In My Discord For Help !
+https://discord.gg/6BFpgqBt6d
+Luksius On TOP ~!
